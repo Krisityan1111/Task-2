@@ -2,5 +2,7 @@
 
 
 
-Krisko e pichaga
+Krisko e pichaga 
+
+Magi sushto
 
